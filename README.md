@@ -10,7 +10,8 @@ Referensi :
 ![image](https://github.com/ilyasalir/ilyasalir/assets/136238654/9fefc926-e4dc-4c80-9b06-61e33215918d)
 
 Blender :
-![image](https://github.com/ilyasalir/ilyasalir/assets/136238654/faece698-88d7-4ebd-a5fd-e60d8aa1a0e5)
+![image](https://github.com/ilyasalir/KELOMPOK-GK-2-Climbing-Wall-Kampus-E/assets/136238654/10c4dd21-6f3d-4600-a04f-46799aaf0e75)
 
 Render :
-![Pict1](https://github.com/ilyasalir/ilyasalir/assets/136238654/4205bcd9-f8f6-42d0-8757-62e24eebdbdf)
+
+![image](https://github.com/ilyasalir/KELOMPOK-GK-2-Climbing-Wall-Kampus-E/assets/136238654/2dc564c8-0912-4ac2-8002-03fff96f29b6)
